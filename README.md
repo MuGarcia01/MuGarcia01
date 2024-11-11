@@ -17,5 +17,4 @@ murilogarcia2006@gmail.com
 
 https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif
 
-https://tenor.com/pt-BR/view/neymar-jr-gif-12167150079286690220
 
